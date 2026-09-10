@@ -1,4 +1,4 @@
-this thing is a wipp for now i genuinely fuming at GitHub rn, I CANNOT PUT GIFS OR ANY PNG ON HERE, anyways  here
+this thing is a wipp for now, I'm genuinely fuming at GitHub rn. I CANNOT PUT GIFS OR ANY PNG ON HERE, anyways  here
 
 <div align="center">
 
