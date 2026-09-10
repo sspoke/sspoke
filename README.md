@@ -1,4 +1,8 @@
-## Hi there 👋
+this thing is a wipp for now i genuinely fuming at GitHub rn, I CANNOT PUT GIFS OR ANY PNG ON HERE, anyways  here
+
+<div align="center">
+
+  [atabook](https://mallooryyooooo.atabook.org/)⁠
 
 <!--
 **sspoke/sspoke** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
