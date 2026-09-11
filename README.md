@@ -6,6 +6,8 @@
 
 <img width="264" height="271" alt="Image" src="https://github.com/user-attachments/assets/14405283-e169-4f8c-9269-18977bb30571" />
 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bodoni+Code&pause=2&color=ebd8e8&center=true&vCenter=true&repeat=true&width=435&lines="Mapic+let+me+restart+that.";"GIDIGIDIGOO")](https://git.io/typing-svg)
+
 <div align="center">
 
 
