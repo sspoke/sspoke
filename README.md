@@ -10,7 +10,7 @@
 
 
   
-  [atabook](https://mallooryyooooo.atabook.org/)
+  [<img width="141" height="30" alt="Image" src="https://github.com/user-attachments/assets/49f23fe9-7344-47b8-8560-c0c729a4ebda" />](https://mallooryyooooo.atabook.org/)
   ⁠
 
 <!--
