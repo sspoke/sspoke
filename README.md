@@ -2,6 +2,8 @@
   
 <img width="880" height="451" alt="Image" src="https://github.com/user-attachments/assets/4c47de7a-366a-408b-8e07-6b3b115ac8e8" />
 
+![♡](https://komarev.com/ghpvc/?username=divine-strawberries&label=SPPOOKY&color=ebd8e8)
+
 <img width="264" height="271" alt="Image" src="https://github.com/user-attachments/assets/14405283-e169-4f8c-9269-18977bb30571" />
 
 
